@@ -27,6 +27,6 @@ We are not going to built the house ourselves from scratch. To save some time, a
 
 Today we have the land and just we got the permit to start building. To get this far, we had imagined doing this for more than ten years, started looking at different styles of buildings few years ago and started talking with the house manufacturing companies seriously one or two years ago. After that, what feels like endless number of hours was spent at finding the right professionals - as required by the building legislation - and waiting for days and weeks for these professionals to respond to simple questions, in vain. Then finding new professionals who actually might do what they promised and take your project further.
 
-After all that fighting and waiting we are only at the very beginning of the project. We can actually start doing something real. I cannot wait!
+After all that fighting and waiting we are only at the very beginning of the project. But I cannot wait to get started!
 
 ![](/uploads/2017/11/17/first-drawings.png "The Drawings")
