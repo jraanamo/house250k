@@ -9,7 +9,6 @@ keywords:
 - scandinavian
 categories: []
 tags: []
-draft: true
 
 ---
 ## The Difference
