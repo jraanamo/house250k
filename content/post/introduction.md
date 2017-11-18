@@ -27,6 +27,6 @@ We are not going to built the house ourselves from scratch though. I've done it 
 
 ## The Starting Point
 
-Now we have the land and just recently we got the permit to start building. To get thus far, we had first imagined doing this for more than ten years, then started looking at different styles of buildings a few years ago and finally started talking with the house manufacturing companies seriously one or two years ago. Sounds simple enough but the amount of coordination between different parties, time spent chasing after the right professionals required by the building legislation and the amount of internal debate seems like one years work already.  
+We have the property and just recently we received the permit to start building. To get thus far, we had first imagined doing this for more than ten years, then started looking at different styles of buildings a few years ago and finally started talking with the house manufacturing companies seriously one or two years ago. Sounds simple enough but the amount of coordination between different parties, time spent chasing after the right professionals required by the building legislation and the amount of internal debate seems like years of work already.  
 
 After all that fighting and frustration we are now only at the _very beginning_ of the project. Still, I cannot wait to get started!
